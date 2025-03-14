@@ -1,3 +1,3 @@
 # 11302
 智慧城市導論
-![FCE6E526-43AA-42A7-A59A-2BFF2FF1E6CB (2)](https://github.com/user-attachments/assets/cde379d8-f15e-435e-aaf7-e7208a850da4)
+![exported_qrcode_image_600 (1)](https://github.com/user-attachments/assets/30830750-3f5d-4752-b7d5-a6da23436d9d)
